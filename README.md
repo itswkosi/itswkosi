@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (NIL)
 - 📫 How to reach me (NIL)
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I am double jounted in my shoulders
+- ⚡ Fun fact: I am double jointed in my shoulders
 
 <!---
 itswkosi/itswkosi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
